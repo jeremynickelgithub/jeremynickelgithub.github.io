@@ -1,3 +1,3 @@
 # Jeremy Nickel's Homepage
-Please go [https://jeremynickel.online/Oil-Treasure-or-Poison](here)
+Please go [here](https://jeremynickel.online/Oil-Treasure-or-Poison)!
 
